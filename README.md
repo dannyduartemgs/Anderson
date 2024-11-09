@@ -9,7 +9,7 @@ Since it's a low poly model don't expect perfection, but it looks good.
 
 ![anderson2](https://github.com/user-attachments/assets/6cc91c3e-a89b-4a52-b333-3a7f03823692)
 
-Thanks to Rob for the Ravager character
+Thanks to Rob for the Ravager character<br />
 Enjoy!
 
 Credits: <br />
