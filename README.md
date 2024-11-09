@@ -1,5 +1,5 @@
 # Anderson
-Aaaaaaaaaaaaamen. Anderson from Hellsing as Ravager
+Aaaaaaaaaaaaamen. Alexander Anderson from Hellsing as Ravager
 
 It seems that the game is less broken, so I'm back at skin making.
 
